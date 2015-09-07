@@ -3,8 +3,6 @@ fgcbdcrrrrr
 fdc
 nbbddsffdfrtgjhfd
 fffss
-ddddddrtf
-dffff
-ddfffdd
+ddddddrtfff
 ffff
 ss
